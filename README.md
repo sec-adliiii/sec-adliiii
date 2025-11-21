@@ -1,4 +1,4 @@
-<img src="https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExZzR2dmhhbWtycWp5amZ4ejdzYjV6c3pyb3Fkc3kzbHVtb3ZzaTE5aiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/lp1FjKHFQRobpQ6qXy/giphy.gif" width="800" />
+<img src="https://tenor.com/view/bocchi-the-rock-hitori-gotou-concert-guitar-anime-gif-27303739" width="800" />
 
 ##❌ Don't Expect Anything Here
 
