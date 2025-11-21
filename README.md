@@ -1,4 +1,4 @@
-<img src="https://tenor.com/b0I63.gif" alt="Bocchi playing guitar" width="1000">
+<img src="https://tenor.com/b0I63.gif" alt="Bocchi playing guitar" >
 
 ##❌ Don't Expect Anything Here
 
