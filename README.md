@@ -1,4 +1,4 @@
-<div class="tenor-gif-embed" data-postid="27303739" data-share-method="host" data-aspect-ratio="1.77778" data-width="100%"><a href="https://tenor.com/view/bocchi-the-rock-hitori-gotou-concert-guitar-anime-gif-27303739">Bocchi The Rock Hitori Gotou GIF</a>from <a href="https://tenor.com/search/bocchi+the+rock-gifs">Bocchi The Rock GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+
 
 ##❌ Don't Expect Anything Here
 
